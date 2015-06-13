@@ -6,7 +6,7 @@ Finally then, brethren, we urge and exhort in the Lord Jesus that you should abo
 
 ^9^ But concerning brotherly love you have no need that I should write to you, for you yourselves are taught by God to love one another; ^10^ and indeed you do so toward all the brethren who are in all Macedonia. But we urge you, brethren, that you increase more and more; ^11^ that you also aspire to lead a quiet life, to mind your own business, and to work with your own hands, as we commanded you, ^12 ^that you may walk properly toward those who are outside, and *that* you may lack nothing.
 
-Background: *You may want to consult a study Bible or Bible dictionary for help with these questions.*
+Interpretation: *Read through the passage, and then review and make notes under the questions below.*
 
 1.  In vv. 1 and 10, Paul encourages the Thessalonians to “abound/increase more and more” in certain things. In what virtues does Paul call the Thessalonians to increase, from the context? Why the repeated references to “more and more”?
 
