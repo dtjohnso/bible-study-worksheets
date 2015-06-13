@@ -10,7 +10,7 @@
 
 ^11 ^Now may our God and Father Himself, and our Lord Jesus Christ, direct our way to you. ^12 ^And may the Lord make you increase and abound in love to one another and to all, just as we *do* to you, ^13 ^so that He may establish your hearts blameless in holiness before our God and Father at the coming of our Lord Jesus Christ with all His saints.
 
-Background: *You may want to consult a study Bible or Bible dictionary for help with these questions.*
+Interpretation: *Read through the passage, and then review and make notes under the questions below.*
 
 1.  Note the one thing that prevented Paul and his team from returning to Thessalonica (2:18). What does this say about the earnestness of Paul’s desire to return?
 

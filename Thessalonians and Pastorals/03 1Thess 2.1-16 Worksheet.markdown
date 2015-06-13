@@ -8,7 +8,7 @@ For you yourselves know, brethren, that our coming to you was not in vain. ^2 ^
 
 ^13 ^For this reason we also thank God without ceasing, because when you received the word of God which you heard from us, you welcomed *it* not *as* the word of men, but as it is in truth, the word of God, which also effectively works in you who believe. ^14 ^For you, brethren, became imitators of the churches of God which are in Judea in Christ Jesus. For you also suffered the same things from your own countrymen, just as they *did* from the Judeans, ^15 ^who killed both the Lord Jesus and their own prophets, and have persecuted us; and they do not please God and are contrary to all men, ^16 ^forbidding us to speak to the Gentiles that they may be saved, so as always to fill up *the measure of* their sins; but wrath has come upon them to the uttermost.
 
-Background: *You may want to consult a study Bible or Bible dictionary for help with these questions.*
+Interpretation: *Read through the passage, and then review and make notes under the questions below.*
 
 1.  In v. 2, Paul refers to his suffering in Philippi (Acts 16:11–40). Why is this background significant to establish Paul’s pure motives for his subsequent ministry among the Thessalonians?
 
