@@ -6,7 +6,7 @@ Background: *You may want to consult a study Bible or Bible dictionary for help 
 >
 > What do we learn from 1 Thess. 3:1–10 about the chain of events that prompted this letter?
 
-Major Themes: Based on a quick read of the text, try to draw some preliminary conclusions about the message and emphasis of this book.
+Major Themes: Based on a quick read of the text, try to draw some preliminary conclusions about the message and emphasis of these books.
 
 > Read through 1 Thessalonians and list the specific needs of the church that Paul addresses. **p. 444**
 >
@@ -14,7 +14,7 @@ Major Themes: Based on a quick read of the text, try to draw some preliminary co
 >
 > Based on your reading of both letters, what are some major theological themes that you noticed? **pp. 452–458**
 
-Personal Response: Reflect on the opportunity to study this book with your Sunday School class.
+Personal Response: Reflect on the opportunity to study these books with your Sunday School class.
 
 > What topics from the text are you excited about discussing together?
 >
